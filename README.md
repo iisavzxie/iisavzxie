@@ -29,6 +29,6 @@
 <br> ↳ "Eww is that the person that did *insert things I did*?!" this is 2025 not 2022-2023 :-( I APOLOGIZEDDD!!! Pls don't think I'm still like my 2022-2023 self!! 
 <br> ↳ just dont be weird!!
 <p align="center">
-💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (remaking)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🎏
+💧 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🎏
 <p align="center">
 <img src="https://files.catbox.moe/n1dt2k.png">
