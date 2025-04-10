@@ -1,16 +1,16 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=iisavzxie&color=97bdf0)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=iisavzxie&color=ffed9e)
 <p align="center">
 <a href="https://github.com/samirusuki">ʚïɞ
 <p align="center">
-<img src="https://github.com/user-attachments/assets/cfe5a7a1-2e65-4719-ac0f-088df2130916">
+<img src="https://github.com/user-attachments/assets/755bbe15-2708-4337-b6fb-1c722201f45a" width=700>
 
-<img src="https://github.com/user-attachments/assets/3152aede-150e-4fc8-aa92-b1284230b5d3" width=700>
+<img src="https://github.com/user-attachments/assets/5120b387-0fc2-4068-9f22-5289f6d765b3" width=700>
 <p align="center">
-˚◞ ♡ " <i>Being a good guide means relying on <b>experience</b>.</i> " ⋆ .
+˚◞ ♡ " <i>A proper sendoff! From the <b>Spina</b>, with love.</i> " ⋆ .
 <br> <img src="https://files.catbox.moe/liwzm8.png" width=300>
 <p align="center">
-ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://i.postimg.cc/NyK9y9Vf/b105.gif" width=10> 3teen <img src="https://files.catbox.moe/1u0r0g.gif" width=10> she / they ◜◡◝
-<br> ✃ lesbian ⟡ asexual (＞。☆) <img src="https://files.catbox.moe/7fwoh6.gif" width=10> <a href="https://en.wikipedia.org/wiki/Autism">au</a><a href="https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder">DHD</a> <img src="https://files.catbox.moe/a12rm9.gif" width=10> <b>ENFP</b> >ヮ<
+ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://github.com/user-attachments/assets/9f369c71-a02e-4a17-a51c-03534c082a05" width=10> 3teen <img src="https://github.com/user-attachments/assets/c9e016b5-0de3-46ea-afb4-34fc4e6d4cf5" width=10> she / they ◜◡◝
+<br> ✃ lesbian ⟡ asexual (＞。☆) <img src="https://github.com/user-attachments/assets/df0e4e9b-1ca6-4696-8934-01d776ee798d" width=10> <a href="https://en.wikipedia.org/wiki/Autism">au</a><a href="https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder">DHD</a> <img src="https://github.com/user-attachments/assets/10c244ec-51b7-42e2-a976-488873c6f79f" width=10> <b>ENFP</b> >ヮ<
 <br> <img src="https://files.catbox.moe/tofh6d.png" width=200>
 <br> (꜆˶ᵔᵕᵔ˶)꜆ biggest kinnie of <a href=https://genshin-impact.fandom.com/wiki/Furina>01</a> and <a href="https://genshin-impact.fandom.com/wiki/Hu_Tao">02</a> (꒪˙꒳˙꒪)
 <br> <img src="https://64.media.tumblr.com/23442ce98e6ae3a39e10d30b2bc381d9/2323f0817bbce1f4-96/s1280x1920/9453dfb5263e44d59f2f9283618d2802325eb3c5.pnj" width=400>
@@ -29,6 +29,5 @@
 <br> ↳ "Eww is that the person that did *insert things I did*?!" this is 2025 not 2022-2023 :-( I APOLOGIZEDDD!!! Pls don't think I'm still like my 2022-2023 self!! 
 <br> ↳ just dont be weird!!
 <p align="center">
-💧 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🎏
+🌕 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🌟
 <p align="center">
-<img src="https://files.catbox.moe/n1dt2k.png">
