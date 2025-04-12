@@ -31,3 +31,4 @@
 <p align="center">
 🌕 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🌟
 <p align="center">
+<img src="https://files.catbox.moe/aiw8ei.png" width=700>
