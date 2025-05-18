@@ -9,7 +9,7 @@
 ˚◞ ♡ " <i>A proper sendoff! From the <b>Spina</b>, with love.</i> " ⋆ .
 <br> <img src="https://files.catbox.moe/liwzm8.png" width=300>
 <p align="center">
-ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://github.com/user-attachments/assets/9f369c71-a02e-4a17-a51c-03534c082a05" width=10> 3teen <img src="https://github.com/user-attachments/assets/c9e016b5-0de3-46ea-afb4-34fc4e6d4cf5" width=10> she / they ◜◡◝
+ᐢ..ᐢ <i>cixija</i> , <b>sav</b> <img src="https://github.com/user-attachments/assets/9f369c71-a02e-4a17-a51c-03534c082a05" width=10> 3teen <img src="https://github.com/user-attachments/assets/c9e016b5-0de3-46ea-afb4-34fc4e6d4cf5" width=10> she / they ◜◡◝
 <br> ✃ lesbian ⟡ asexual (＞。☆) <img src="https://github.com/user-attachments/assets/df0e4e9b-1ca6-4696-8934-01d776ee798d" width=10> <a href="https://en.wikipedia.org/wiki/Autism">au</a><a href="https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder">DHD</a> <img src="https://github.com/user-attachments/assets/10c244ec-51b7-42e2-a976-488873c6f79f" width=10> <b>ENFP</b> >ヮ<
 <br> <img src="https://files.catbox.moe/tofh6d.png" width=200>
 <br> (꜆˶ᵔᵕᵔ˶)꜆ biggest kinnie of <a href=https://genshin-impact.fandom.com/wiki/Furina>01</a> and <a href="https://genshin-impact.fandom.com/wiki/Hu_Tao">02</a> (꒪˙꒳˙꒪)
