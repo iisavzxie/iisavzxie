@@ -9,7 +9,7 @@
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6629.gif" width=800>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_6634.png" width=600>
 <p align="center">
-‎୨ ‎ ‎ ‎ ‎ ‎<a href="https://rentry.co/scararinahater">rᰔntry</a> ‎ ‎ ‎ ✩ ‎ ‎ ‎ ‎ strawp☆ge (WIP) ‎ ‎ ‎ ‎ ✩ ‎ ‎ ‎ ‎ <a href="https://cybercourt.atabook.org">at✧book</a> ‎ ‎ ‎ ‎✩  ‎ ‎ ‎ ‎ <a href="https://en.pronouns.page/@iisavzxie">prns p∘ge</a> ‎ ‎ ‎ ‎ ୧
+‎୨ ‎ ‎ ‎ ‎ ‎<a href="https://rentry.co/scararinahater">rᰔntry</a> ‎ ‎ ‎ ✩ ‎ ‎ ‎ ‎ strawp☆ge (WIP) ‎ ‎ ‎ ‎ ✩ ‎ ‎ ‎ ‎ <a href="https://loveandobsession.atabook.org">at✧book</a> ‎ ‎ ‎ ‎✩  ‎ ‎ ‎ ‎ <a href="https://en.pronouns.page/@iisavzxie">prns p∘ge</a> ‎ ‎ ‎ ‎ ୧
 <p align="center">
 ━━━━━━
 <p align="center">
