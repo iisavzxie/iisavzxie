@@ -26,6 +26,7 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 ⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=130>
 </p>
 <p align="center">
+<br>
 <img src="https://files.catbox.moe/428no7.png" width=320>
 <br><br>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5951.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5957.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5956.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5958.gif" width=140>
