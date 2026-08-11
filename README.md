@@ -29,6 +29,8 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br>
 <img src="https://files.catbox.moe/428no7.png" width=320>
 <br><br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Quintessential&size=15&duration=4000&pause=1000&color=643282&center=true&width=435&lines=So...+Sleepy...+Zzzzzz+%E0%B1%BF(%3D%5E%EF%BD%A5%CF%89%EF%BD%A5%5E%3D);Oh+hey!!+PLS+SIGN+MY+ATA+T_T" alt="Typing SVG" /></a>
+<br>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5951.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5957.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5956.gif" width=140> <img src="https://file.garden/aLHIWXpySU2VRd-b/IMG_5958.gif" width=140>
 <br><br>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/Untitled1336_20260811095800.png" width=600>
