@@ -25,3 +25,4 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=119>
 </p>
+WHY IS IT GLITCHING HOW DO I FIX THIS
