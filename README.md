@@ -23,7 +23,7 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br>
 ⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://rentry.co/scararinahater">r☆ntry</a>⠀⠀∘⠀⠀⠀<a href="https://loveandobsession.atabook.org">新book</a>
 <br><br>
-⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=120>
+⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=130>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/428no7.png" width=320>
