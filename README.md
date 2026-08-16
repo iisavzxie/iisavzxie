@@ -12,7 +12,7 @@ ${\color{#643282} ⠀⠀⠀to \space the \space earth \space chemically \space a
 ${\color{#DE8885}⠀⠀⠀⠀⠀⠀⠀⠀the \space universe \space atomically.}$ <img src="https://i.postimg.cc/Hk3PgPTX/gx227k.gif">
 ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br>
-⠀⠀⠀sᴀᴠ⠀⠀⪩⪨⠀⠀sᴀᴠɪᴛᴀ⠀⠀∘⠀⠀ᴄɪxɪᴊᴀ⠀⠀୨ৎ
+⠀⠀⠀sᴀᴠ⠀⠀⪩⪨⠀⠀sᴀᴠɪᴛᴀ⠀⠀∘⠀⠀ᴄʏʟɪᴄɪᴀ⠀⠀୨ৎ
 <br>
 ⠀⠀⠀⠀⠀⠀𝟣𝟦 𝗒𝗈⠀⠀౿(☆ ≧▽≦)⠀⠀𝗌𝗁𝖾 / 𝗍𝗁𝖾𝗒
 <br><br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://i.postimg.cc/sD3cH073/1164774207243169802.webp" width=20>
