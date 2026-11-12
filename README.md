@@ -35,4 +35,4 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br><br>
 <img src="https://file.garden/aLHIWXpySU2VRd-b/Untitled1336_20260811095800.png" width=600>
 </p>
-👑 @piddlesjet
+👑 <a href="https://github.com/piddlesjet">@piddlesjet</a>
